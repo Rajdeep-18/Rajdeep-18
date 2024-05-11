@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **rajdeepdutta639@gmail.com**
 
-- ⚡ Fun fact **I'm an introvert kind of person.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
